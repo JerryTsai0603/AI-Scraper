@@ -1,0 +1,115 @@
+<!DOCTYPE html>
+<html lang="zh-Hant">
+<head>
+  <meta charset="UTF-8" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+  <title>Stockings & Footjob Daily</title>
+  <meta name="description" content="每日自動彙整 Jable.tv 與 MissAV 上與絲襪、腳交相關的影片，含關鍵字 / 觀看數 / 時長 / 上傳日期篩選。" />
+  <link rel="stylesheet" href="assets/style.css" />
+</head>
+<body>
+  <header class="topbar">
+    <div class="container topbar__inner">
+      <h1 class="logo">🧦 Stockings &amp; Footjob <span>Daily</span></h1>
+      <div class="topbar__meta" id="meta">載入中…</div>
+    </div>
+  </header>
+
+  <main class="container">
+    <!-- 篩選面板 -->
+    <section class="panel" aria-label="篩選條件">
+      <div class="panel__row">
+        <label class="field">
+          <span>關鍵字搜尋（標題）</span>
+          <input type="search" id="q" placeholder="例如：絲襪、stockings、足コキ…" />
+        </label>
+
+        <label class="field">
+          <span>來源</span>
+          <select id="source">
+            <option value="">全部</option>
+            <option value="jable">Jable.tv</option>
+            <option value="missav">MissAV</option>
+          </select>
+        </label>
+
+        <label class="field">
+          <span>主題</span>
+          <select id="topic">
+            <option value="">全部</option>
+            <option value="stockings">絲襪類</option>
+            <option value="footjob">腳交類</option>
+          </select>
+        </label>
+
+        <label class="field field--sort">
+          <span>排序</span>
+          <select id="sort">
+            <option value="uploaded_desc">上傳日期（新→舊）</option>
+            <option value="views_desc">觀看數（高→低）</option>
+            <option value="duration_desc">時長（長→短）</option>
+            <option value="duration_asc">時長（短→長）</option>
+            <option value="title_asc">標題 A→Z</option>
+          </select>
+        </label>
+      </div>
+
+      <div class="panel__row">
+        <label class="field field--num">
+          <span>最少觀看數</span>
+          <input type="number" id="minViews" min="0" step="100" placeholder="0" />
+        </label>
+        <label class="field field--num">
+          <span>最短時長（分）</span>
+          <input type="number" id="minDur" min="0" step="1" placeholder="0" />
+        </label>
+        <label class="field field--num">
+          <span>最長時長（分）</span>
+          <input type="number" id="maxDur" min="0" step="1" placeholder="0" />
+        </label>
+        <label class="field field--num">
+          <span>只顯示近 N 天上傳</span>
+          <input type="number" id="withinDays" min="0" step="1" placeholder="0 = 不限" />
+        </label>
+        <label class="field field--num">
+          <span>每頁顯示</span>
+          <input type="number" id="pageSize" min="4" max="60" step="4" value="24" />
+        </label>
+        <button class="btn btn--ghost" id="resetBtn" type="button">重置</button>
+      </div>
+
+      <div class="panel__row panel__row--chips">
+        <span class="chips__label">快速標籤：</span>
+        <div id="tagChips" class="chips"></div>
+      </div>
+    </section>
+
+    <!-- 摘要 -->
+    <section class="summary" id="summary"></section>
+
+    <!-- 卡片網格 -->
+    <section id="grid" class="grid" aria-live="polite"></section>
+
+    <!-- 分頁 -->
+    <nav class="pager" id="pager" aria-label="分頁"></nav>
+
+    <!-- 來源說明 -->
+    <section class="sources" aria-label="資料來源">
+      <h2>資料來源</h2>
+      <ul>
+        <li><a href="https://jable.tv/" target="_blank" rel="noopener noreferrer">Jable.tv</a> — 免費 JAV 站，於每日上午彙整</li>
+        <li><a href="https://missav.com/" target="_blank" rel="noopener noreferrer">MissAV</a> — 免費 JAV 索引站，於每日上午彙整</li>
+      </ul>
+      <p class="sources__note">⚠️ 本頁面僅整理各站公開頁面之標題、封面與基本資訊，所有影片之著作權皆歸原網站及原作者所有。如欲觀看請至原站，請支持正版。</p>
+    </section>
+  </main>
+
+  <footer class="footer">
+    <div class="container">
+      <small>© <span id="year"></span> Stockings &amp; Footjob Daily · 由 GitHub Actions 自動產生</small>
+    </div>
+  </footer>
+
+  <script src="assets/app.js"></script>
+</body>
+</html>

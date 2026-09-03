@@ -1,0 +1,68 @@
+# Stockings & Footjob Daily 爬蟲設定檔
+# 修改此檔即可調整關鍵字與篩選條件，不需要改程式。
+
+keywords:
+  stockings:        # 絲襪類
+    - 絲襪
+    - 黑絲
+    - 連褲襪
+    - 褲襪
+    - stockings
+    - pantyhose
+    - tights
+    - パンスト
+    - タイツ
+    - ストッキング
+    - 黒タイツ
+    - 網タイツ
+  footjob:          # 腳交類
+    - 腳交
+    - 足交
+    - 足戯
+    - 足技
+    - footjob
+    - foot fetish
+    - foot worship
+    - 足コキ
+    - 足フェチ
+    - 足裏
+    - 足舐め
+
+filters:
+  min_views: 0
+  min_duration_min: 0
+  max_duration_min: 0
+  uploaded_within_days: 0
+
+# 爬取來源設定
+# 主要用 eporner 公開 API（不需 Cloudflare 認證，純 HTTP JSON）
+# Jable / MissAV 暫時關閉（Cloudflare 擋 + MissAV 已無列表）
+sources:
+  eporner:
+    enabled: true
+    base_url: "https://www.eporner.com"
+    request_delay_sec: 1.0
+    per_query: 15
+    thumbs_size: medium
+    queries:
+      - "stockings"
+      - "footjob"
+      - "pantyhose"
+      - "tights"
+      - "leg fetish"
+  jable:
+    enabled: false
+    base_url: "https://jable.tv"
+    request_delay_sec: 2.0
+    per_entry_max: 4
+    entries: []
+  missav:
+    enabled: false
+    base_url: "https://missav.com"
+    pages: 1
+    request_delay_sec: 2.0
+
+output:
+  results_dir: "results"
+  write_markdown_report: true
+  keep_history: true

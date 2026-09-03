@@ -1,0 +1,22 @@
+# Python
+__pycache__/
+*.py[cod]
+*.pyo
+.venv/
+venv/
+.env
+
+# IDE
+.idea/
+.vscode/
+
+# OS
+.DS_Store
+Thumbs.db
+
+# 暫存
+*.log
+.pytest_cache/
+
+# results 內 .gitkeep 之後可選保留；以下排除單次煙霧測試暫存
+results/.tmp/
