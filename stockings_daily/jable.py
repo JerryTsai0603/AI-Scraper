@@ -11,7 +11,12 @@ from datetime import datetime, timedelta, timezone
 from typing import Iterable, Sequence
 from urllib.parse import urljoin
 
-from playwright.sync_api import Browser, Page, sync_playwright
+try:
+    from playwright.sync_api import Browser, Page, sync_playwright  # noqa: F401
+    HAS_PLAYWRIGHT = True
+except Exception:  # noqa: BLE001
+    Browser = Page = sync_playwright = None  # type: ignore
+    HAS_PLAYWRIGHT = False
 
 from .filters import Video
 
