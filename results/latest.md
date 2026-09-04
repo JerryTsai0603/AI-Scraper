@@ -1,45 +1,36 @@
-# Stockings & Footjob Daily — 2026-09-03
+# Stockings & Footjob Daily — 2026-09-04
 
-共 **39** 部符合條件。
+共 **30** 部符合條件。
 
 | 來源 | 標題 | 時長 | 觀看 | 上傳 | 命中關鍵字 | 連結 |
 |---|---|---|---|---|---|---|
-| eporner | Sex With A Hot Beauty In A Bodysuit And Stockings      Only Love | 9.4m | 423 | - | stockings | [link](https://www.eporner.com/video-OHLN177lM8h/sex-with-a-hot-beauty-in-a-bodysuit-and-stockings-only-love/) |
-| eporner | Busty Airu Oshima's Intense Toy Masturbation In Stockings | 7.6m | 188 | - | stockings | [link](https://www.eporner.com/video-BRydgr08Kvq/busty-airu-oshima-s-intense-toy-masturbation-in-stockings/) |
-| eporner | Ririsu Ayaka Pleasures Two Guys In Stockings With Hot Japanese Blowjob | 7.9m | 65 | - | stockings | [link](https://www.eporner.com/video-ynD2cOmfd4L/ririsu-ayaka-pleasures-two-guys-in-stockings-with-hot-japanese-blowjob/) |
-| eporner | BANGBROS - Horny Virgin Matty Mila Perez Begs Her Stepdad For Cock And Gets Fucked Hard For Her First Time Stockings | 9.3m | 106 | - | stockings | [link](https://www.eporner.com/video-ADVft0ucQ18/bangbros-horny-virgin-matty-mila-perez-begs-her-stepdad-for-cock-and-gets-fucked-hard-for-her-first-time-stockings/) |
-| eporner | Megumi Haruka Gives An Asian Blowjob And Is Fucked In Stockings | 7.0m | 112 | - | stockings | [link](https://www.eporner.com/video-ykiuaruGBiF/megumi-haruka-gives-an-asian-blowjob-and-is-fucked-in-stockings/) |
-| eporner | German Amateur POV Cumshot In Stockings | 8.0m | 3 | - | stockings | [link](https://www.eporner.com/video-zRst9ywuvGD/german-amateur-pov-cumshot-in-stockings/) |
-| eporner | Miku Kirino's Extreme Hardcore Adventure In Stockings | 7.9m | 144 | - | stockings | [link](https://www.eporner.com/video-3A7olqZQdNR/miku-kirino-s-extreme-hardcore-adventure-in-stockings/) |
-| eporner | Hot Japanese Stockings Porn With Airu Oshima In Hardcore Action | 8.0m | 206 | - | stockings | [link](https://www.eporner.com/video-qDHI3JsgcOl/hot-japanese-stockings-porn-with-airu-oshima-in-hardcore-action/) |
-| eporner | Hot Asian Threesome With Ryo Makoto In Stockings | 7.5m | 68 | - | stockings | [link](https://www.eporner.com/video-dJrtT8C34DF/hot-asian-threesome-with-ryo-makoto-in-stockings/) |
-| eporner | Sex With A Hot Stranger From Sexdater Footjob Cowgirl Doggy Missionary | 21.3m | 2 | - | footjob | [link](https://www.eporner.com/video-4gSDE09o8Oh/sex-with-a-hot-stranger-from-sexdater-footjob-cowgirl-doggy-missionary/) |
-| eporner | Japanese Fully Clothed Pantyhose Sex 52 - Two Sessions Oily Pantyhose Fun | 49.9m | 334 | - | pantyhose | [link](https://www.eporner.com/video-B6SVVlD3adV/japanese-fully-clothed-pantyhose-sex-52-two-sessions-oily-pantyhose-fun/) |
-| eporner | Japanese Pantyhose Secretary Office Sex 67 - Dom Secretary Pegs New Intern | 58.8m | 19 | - | pantyhose | [link](https://www.eporner.com/video-deiO6v0Ol77/japanese-pantyhose-secretary-office-sex-67-dom-secretary-pegs-new-intern/) |
-| eporner | Japanese Pantyhose Wife 97 - Stepmom Footjob | 25.3m | 22 | - | pantyhose, footjob | [link](https://www.eporner.com/video-ZvQ51R53sO8/japanese-pantyhose-wife-97-stepmom-footjob/) |
-| eporner | Japanese Pantyhose Wife 71 - Squirting Threesome | 40.0m | 495 | - | pantyhose | [link](https://www.eporner.com/video-s7LXBzmp3kj/japanese-pantyhose-wife-71-squirting-threesome/) |
-| eporner | Japanese Pantyhose J U F D 8 3 3 | 180.3m | 16 | - | pantyhose | [link](https://www.eporner.com/video-bHm7KXypBda/japanese-pantyhose-j-u-f-d-8-3-3/) |
-| eporner | Japanese Pantyhose J U F D 5 4 4 | 169.3m | 19 | - | pantyhose | [link](https://www.eporner.com/video-zUFbnwb49cR/japanese-pantyhose-j-u-f-d-5-4-4/) |
-| eporner | Japanese Pantyhose J U F D 1 6 3 | 156.3m | 16 | - | pantyhose | [link](https://www.eporner.com/video-J0PoTnBcI82/japanese-pantyhose-j-u-f-d-1-6-3/) |
-| eporner | Japanese Pantyhose J U F D 0 8 5 | 118.2m | 19 | - | pantyhose | [link](https://www.eporner.com/video-WqGPScr83wR/japanese-pantyhose-j-u-f-d-0-8-5/) |
-| eporner | Japanese Pantyhose J U F D 0 6 1 | 120.3m | 16 | - | pantyhose | [link](https://www.eporner.com/video-gAUhcd5jqnn/japanese-pantyhose-j-u-f-d-0-6-1/) |
-| eporner | Retro Pantyhose | 18.3m | 139 | - | pantyhose | [link](https://www.eporner.com/video-UEXEailel1r/retro-pantyhose/) |
-| eporner | Japanese Pantyhose J U F D 0 3 7 | 117.9m | 11 | - | pantyhose | [link](https://www.eporner.com/video-Cp4lMh4NF0y/japanese-pantyhose-j-u-f-d-0-3-7/) |
-| eporner | Japanese Pantyhose J U F D 0 3 0 | 118.9m | 7 | - | pantyhose | [link](https://www.eporner.com/video-FqNaSmjsDdN/japanese-pantyhose-j-u-f-d-0-3-0/) |
-| eporner | Japanese Pantyhose J U F D 0 1 4 | 118.4m | 6 | - | pantyhose | [link](https://www.eporner.com/video-QdRC2PoPhNK/japanese-pantyhose-j-u-f-d-0-1-4/) |
-| eporner | Beautiful Naughty Teen In Tights Gives Pleasure | 21.9m | 33 | - | tights | [link](https://www.eporner.com/video-9Rzw7ZO68Tn/beautiful-naughty-teen-in-tights-gives-pleasure/) |
-| eporner | Superstar In Tiny Tights Gets Her Anal Hammered - Hottest XXX! | 10.3m | 400 | - | tights | [link](https://www.eporner.com/video-vS8qnb3F1tL/superstar-in-tiny-tights-gets-her-anal-hammered-hottest-xxx/) |
-| eporner | Cowgirl In White Lace Tights Rides A Big Cock | 9.8m | 36 | - | tights | [link](https://www.eporner.com/video-Wf4cbKkUtlE/cowgirl-in-white-lace-tights-rides-a-big-cock/) |
-| eporner | Sexy Platinum-blonde Milf In Ebony Lace Underwear Gets Smacked While Wearing Tights With | 11.0m | 16 | - | tights | [link](https://www.eporner.com/video-11j3kUDtQwt/sexy-platinum-blonde-milf-in-ebony-lace-underwear-gets-smacked-while-wearing-tights-with/) |
-| eporner | Japanese Beautiful Busty Girl In Tights Gets Fucked | 12.1m | 42 | - | tights | [link](https://www.eporner.com/video-K7MTkDfGBBv/japanese-beautiful-busty-girl-in-tights-gets-fucked/) |
+| eporner | Ksu Colt - #Gape #Deep #Ass #Anal #High Quality #Blonde #Bigass #Bigtits #Lingerie #Stockings | 29.9m | 882 | - | stockings | [link](https://www.eporner.com/video-7o4frgPt7MH/ksu-colt-gape-deep-ass-anal-high-quality-blonde-bigass-bigtits-lingerie-stockings/) |
+| eporner | Hot Japanese Stockings Sex With Airu Oshima In Hardcore Action | 7.9m | 145 | - | stockings | [link](https://www.eporner.com/video-1ZlhL04Otwo/hot-japanese-stockings-sex-with-airu-oshima-in-hardcore-action/) |
+| eporner | Lola Rae UK - Christmas Tights Footjob | 6.5m | 22 | - | tights, footjob | [link](https://www.eporner.com/video-Z7BL7Ym1Dfr/lola-rae-uk-christmas-tights-footjob/) |
+| eporner | White Milf Footjob With Pretty White Toes | 6.3m | 46 | - | footjob | [link](https://www.eporner.com/video-qelpsSnLiXs/white-milf-footjob-with-pretty-white-toes/) |
+| eporner | Japanese Pantyhose J U F D 1 9 0 | 155.1m | 33 | - | pantyhose | [link](https://www.eporner.com/video-yA3OS28gSoN/japanese-pantyhose-j-u-f-d-1-9-0/) |
+| eporner | Japanese Pantyhose J U F D 0 7 7 | 120.6m | 27 | - | pantyhose | [link](https://www.eporner.com/video-gLeSPbnLsmO/japanese-pantyhose-j-u-f-d-0-7-7/) |
+| eporner | Japanese Pantyhose Teacher 41 - Plump Teacher Fucks Mature Student | 46.6m | 196 | - | pantyhose | [link](https://www.eporner.com/video-cOWjSkneI1O/japanese-pantyhose-teacher-41-plump-teacher-fucks-mature-student/) |
+| eporner | Japanese Pantyhose Wife 98 - Seamless Pantyhose Creampie | 70.4m | 10 | - | pantyhose | [link](https://www.eporner.com/video-ffip3JZyrtt/japanese-pantyhose-wife-98-seamless-pantyhose-creampie/) |
+| eporner | Japanese Pantyhose Wife 90 - BBW Wife Helps Her Cousin | 35.5m | 1,203 | - | pantyhose | [link](https://www.eporner.com/video-MX9gtcQxPuY/japanese-pantyhose-wife-90-bbw-wife-helps-her-cousin/) |
+| eporner | Japanese Pantyhose Wife 82 - Stepson Education (full Movie) | 126.2m | 417 | - | pantyhose | [link](https://www.eporner.com/video-lh29LZxvfZd/japanese-pantyhose-wife-82-stepson-education-full-movie/) |
+| eporner | Japanese Super Hot Wife In Pantyhose Gets Fucked | 11.9m | 6 | - | pantyhose | [link](https://www.eporner.com/video-1GTGQwQ1oTB/japanese-super-hot-wife-in-pantyhose-gets-fucked/) |
+| eporner | Japanese Fully Clothed Pantyhose Sex 55 | 38.8m | 853 | - | pantyhose | [link](https://www.eporner.com/video-RIyhLnjfAjr/japanese-fully-clothed-pantyhose-sex-55/) |
+| eporner | Japanese Pantyhose Wife 95 - Masturbate In Car Then Home For Fuck | 45.0m | 35 | - | pantyhose | [link](https://www.eporner.com/video-g8pLqnjulVX/japanese-pantyhose-wife-95-masturbate-in-car-then-home-for-fuck/) |
+| eporner | Japanese Pantyhose Teacher 37 - Footjob In Library | 26.6m | 542 | - | pantyhose, footjob | [link](https://www.eporner.com/video-60Y8rdLIZnI/japanese-pantyhose-teacher-37-footjob-in-library/) |
+| eporner | Japanese Pantyhose Leotard Sex 40 - Nylon Footjob | 19.3m | 324 | - | pantyhose, footjob | [link](https://www.eporner.com/video-pspm2AKEiDt/japanese-pantyhose-leotard-sex-40-nylon-footjob/) |
+| eporner | Japanese Pantyhose Wife 87 - Creampied By Stepson Eduction | 72.7m | 1,135 | - | pantyhose | [link](https://www.eporner.com/video-ytwcWslXNy3/japanese-pantyhose-wife-87-creampied-by-stepson-eduction/) |
+| eporner | Beautiful Naughty Teen In Tights Gives Pleasure | 21.9m | 47 | - | tights | [link](https://www.eporner.com/video-9Rzw7ZO68Tn/beautiful-naughty-teen-in-tights-gives-pleasure/) |
+| eporner | Superstar In Tiny Tights Gets Her Anal Hammered - Hottest XXX! | 10.3m | 465 | - | tights | [link](https://www.eporner.com/video-vS8qnb3F1tL/superstar-in-tiny-tights-gets-her-anal-hammered-hottest-xxx/) |
+| eporner | Cowgirl In White Lace Tights Rides A Big Cock | 9.8m | 39 | - | tights | [link](https://www.eporner.com/video-Wf4cbKkUtlE/cowgirl-in-white-lace-tights-rides-a-big-cock/) |
+| eporner | Sexy Platinum-blonde Milf In Ebony Lace Underwear Gets Smacked While Wearing Tights With | 11.0m | 22 | - | tights | [link](https://www.eporner.com/video-11j3kUDtQwt/sexy-platinum-blonde-milf-in-ebony-lace-underwear-gets-smacked-while-wearing-tights-with/) |
+| eporner | Japanese Beautiful Busty Girl In Tights Gets Fucked | 12.1m | 43 | - | tights | [link](https://www.eporner.com/video-K7MTkDfGBBv/japanese-beautiful-busty-girl-in-tights-gets-fucked/) |
 | eporner | Blonde In Tights Gets A Messy Cumshot | 7.2m | 4 | - | tights | [link](https://www.eporner.com/video-NxO79GsFay1/blonde-in-tights-gets-a-messy-cumshot/) |
-| eporner | Blonde Stunner In Tights Gets Her Gullet Packed With Cock - Warm Hot Porn! | 10.5m | 402 | - | tights | [link](https://www.eporner.com/video-34MnbWyD2Dd/blonde-stunner-in-tights-gets-her-gullet-packed-with-cock-warm-hot-porn/) |
-| eporner | Annabel - Tights Tease VR | 11.7m | 1,719 | - | tights | [link](https://www.eporner.com/video-w69FJtNqbXA/annabel-tights-tease-vr/) |
-| eporner | Ria - Tights VR | 31.0m | 4,005 | - | tights | [link](https://www.eporner.com/video-LTHRROJCYYl/ria-tights-vr/) |
-| eporner | Japanese Beauty In Tights Enjoys Great Pleasure | 18.5m | 50 | - | tights | [link](https://www.eporner.com/video-yjx6eZqrPkB/japanese-beauty-in-tights-enjoys-great-pleasure/) |
-| eporner | Japanese Pantyhose Wife 59 - Relieves Husband Twice After Work | 33.8m | 5,199 | - | pantyhose | [link](https://www.eporner.com/video-rYCp3HH7n6D/japanese-pantyhose-wife-59-relieves-husband-twice-after-work/) |
-| eporner | Black Pantyhose Tutor Is My Classmate - Natsuno Chinami | 128.7m | 522 | - | pantyhose | [link](https://www.eporner.com/video-9ovHr6bTLEh/black-pantyhose-tutor-is-my-classmate-natsuno-chinami/) |
-| eporner | Sexy And Beautiful Older Sister's Pantyhose Fetish Sex! Celebrity-style Play Without Taking Off Her Clothes!! Shiori Imoto | 116.0m | 1,288 | - | pantyhose | [link](https://www.eporner.com/video-jXcTHgMPar1/sexy-and-beautiful-older-sister-s-pantyhose-fetish-sex-celebrity-style-play-without-taking-off-her-clothes-shiori-imoto/) |
-| eporner | Beautiful Honor Student After-School Perverted Black Pantyhose Club Ruka Itoi | 120.5m | 423 | - | pantyhose | [link](https://www.eporner.com/video-xv0iMyLe1My/beautiful-honor-student-after-school-perverted-black-pantyhose-club-ruka-itoi/) |
-| eporner | Japanese Pantyhose Wife 31 | 35.6m | 670 | - | pantyhose | [link](https://www.eporner.com/video-LzpLb4EMioT/japanese-pantyhose-wife-31/) |
-| eporner | A slutty, beautiful-legged cabin attendant who lives nearby teases me with her sweaty black pantyhose after a flight, then uses her sweet, sadistic leg techniques to squeeze and stroke me, getting caught up in a fuck that relieves her sexual desires. Yui | 160.1m | 2,973 | - | pantyhose | [link](https://www.eporner.com/video-NxiPNEPgzfw/a-slutty-beautiful-legged-cabin-attendant-who-lives-nearby-teases-me-with-her-sweaty-black-pantyhose-after-a-flight-then-uses-her-sweet-sadistic-leg-techniques-to-squeeze-and-stroke-me-getting-caught-up-in-a-fuck-that-relieves-her-sexual-desires-yui/) |
+| eporner | Blonde Stunner In Tights Gets Her Gullet Packed With Cock - Warm Hot Porn! | 10.5m | 413 | - | tights | [link](https://www.eporner.com/video-34MnbWyD2Dd/blonde-stunner-in-tights-gets-her-gullet-packed-with-cock-warm-hot-porn/) |
+| eporner | Annabel - Tights Tease VR | 11.7m | 1,774 | - | tights | [link](https://www.eporner.com/video-w69FJtNqbXA/annabel-tights-tease-vr/) |
+| eporner | Japanese Pantyhose Wife 59 - Relieves Husband Twice After Work | 33.8m | 5,612 | - | pantyhose | [link](https://www.eporner.com/video-rYCp3HH7n6D/japanese-pantyhose-wife-59-relieves-husband-twice-after-work/) |
+| eporner | Black Pantyhose Tutor Is My Classmate - Natsuno Chinami | 128.7m | 537 | - | pantyhose | [link](https://www.eporner.com/video-9ovHr6bTLEh/black-pantyhose-tutor-is-my-classmate-natsuno-chinami/) |
+| eporner | Sexy And Beautiful Older Sister's Pantyhose Fetish Sex! Celebrity-style Play Without Taking Off Her Clothes!! Shiori Imoto | 116.0m | 1,308 | - | pantyhose | [link](https://www.eporner.com/video-jXcTHgMPar1/sexy-and-beautiful-older-sister-s-pantyhose-fetish-sex-celebrity-style-play-without-taking-off-her-clothes-shiori-imoto/) |
+| eporner | Beautiful Honor Student After-School Perverted Black Pantyhose Club Ruka Itoi | 120.5m | 434 | - | pantyhose | [link](https://www.eporner.com/video-xv0iMyLe1My/beautiful-honor-student-after-school-perverted-black-pantyhose-club-ruka-itoi/) |
+| eporner | Japanese Pantyhose Wife 31 | 35.6m | 682 | - | pantyhose | [link](https://www.eporner.com/video-LzpLb4EMioT/japanese-pantyhose-wife-31/) |
+| eporner | A slutty, beautiful-legged cabin attendant who lives nearby teases me with her sweaty black pantyhose after a flight, then uses her sweet, sadistic leg techniques to squeeze and stroke me, getting caught up in a fuck that relieves her sexual desires. Yui | 160.1m | 2,989 | - | pantyhose | [link](https://www.eporner.com/video-NxiPNEPgzfw/a-slutty-beautiful-legged-cabin-attendant-who-lives-nearby-teases-me-with-her-sweaty-black-pantyhose-after-a-flight-then-uses-her-sweet-sadistic-leg-techniques-to-squeeze-and-stroke-me-getting-caught-up-in-a-fuck-that-relieves-her-sexual-desires-yui/) |
